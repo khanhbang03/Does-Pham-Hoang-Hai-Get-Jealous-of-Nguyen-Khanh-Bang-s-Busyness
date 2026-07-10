@@ -1,4 +1,4 @@
-# Does-Pham-Hoang-Hai-Get-Jealous-of-Nguyen-Khanh-Bang-s-Busyness-
+# Does-Pham-Hoang-Hai-Get-Jealous-of-Nguyen-Khanh-Bang-s-Busyness
 Does Pham Hoang Hai Get Jealous of Nguyen Khanh Bang's Busyness?
 # **The Quantum Busyness Paradox: Does Phạm Hoàng Hải Get Jealous of Nguyễn Khánh Bằng's Busyness?**
 
